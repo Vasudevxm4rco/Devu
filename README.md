@@ -92,7 +92,7 @@ By establishing the Asena, you are deemed to have accepted these responsibilitie
 ## Developers
   <div align="center">
     
-  [![ameerkallumthodi](https://github.com/Pikachu-407x400.png?size=100)](https://github.com/ameerkallumthodi) | [MARCO X KID] |(FAKE-BEAN)](https://i.imgur.com/KbE2Nce.jpeg) 
+  [![ameerkallumthodi](https://github.com/Pikachu-407x400.png?size=100)](https://github.com/ameerkallumthodi) | [MARCO X KID] |(FAKE-BEAN)] 
 ----|----|----
 [farhan-dqz](https://github.com/farhan-dqz)  | [Vasudrvxm4rco](https://github.com/Vasudevxm4rco)| [FAKE-BEAN](https://i.imgur.com/KbE2Nce.jpeg)
 Base, Bug Fixes, Modules | Modifiying  as   public | Bug Fixes, Modules
