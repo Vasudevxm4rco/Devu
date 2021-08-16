@@ -94,7 +94,7 @@ By establishing the Asena, you are deemed to have accepted these responsibilitie
     
   [![ameerkallumthodi](https://github.com/Pikachu-407x400.png?size=100)](https://github.com/ameerkallumthodi) | [MARCO X KID] |(https://github.com/Hisham-Muhammed/Sophia).png?size=100)](https://i.imgur.com/KbE2Nce.jpeg) 
 ----|----|----
-[farhan-dqz](https://github.com/farhan-dqz)  | [Vasudrvxm4rco](https://github.com/AI-VIKI) | [afnanplk](https://i.imgur.com/KbE2Nce.jpeg)
+[farhan-dqz](https://github.com/farhan-dqz)  | [Vasudrvxm4rco](https://github.com/Vasudevxm4rco)| [FAKE-BEAN](https://i.imgur.com/KbE2Nce.jpeg)
 Base, Bug Fixes, Modules | Modifiying  as   public | Bug Fixes, Modules
   </div>
     
